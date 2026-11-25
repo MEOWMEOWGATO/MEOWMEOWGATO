@@ -1,9 +1,9 @@
-Hello! My name is Gabriel/Kap. Also known as MEOWMEOWGATO.
---Intrests -->  Im intrested in going into random rabbit-holes about random stuff i find on the internet.
--Gender + sexualities -->  I'm transgender(FTM), gay, and asexual!
--Current pets? -->  I currently have a purebred german shepherd and a purebred siberian husky!
---Hobbies -->  Furry (I DONT IDENTIFY AS AN ANIMAL.), origami making, and gaming.
---Boundaries -->  please dont try getting sexual with me, i wont be intrested.
-B.T.W I do use emoticons! (Mainly :3, :D, D:, C:, and :C. I also support xenogenders.
+Hello! My name is Rocket/Broker/August. Also known as MEOWMEOWGATO.
+- Interests -->  Hyperfixated on PHIGHTING!, Roblox, Creatures of Sonaria.
+- Gender + sexualities -->  We are transneumasc, libramasc, almondromantic, demiromantic, semifictoromantic!
+- Current pets? -->  purebred gsd, 2 mixed dogs!
+- Hobbies -->  furry, gaming, kandi making, yarn tail making.
+- Boundaries -->  WE'RE A MINOR! dni weird people!!
+- Others -->  we're a therian, fictionkin, & robotkin
 
-DNI (DONT INTERACT IF): invalid sexualities (such as zoophiles, pedophiles, ect..)
+DNI : invalid sexualities (such as zoophiles, pedophiles, ect..)

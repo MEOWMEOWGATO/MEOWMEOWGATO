@@ -7,3 +7,5 @@ Hello! My name is Rocket/Broker/August. Also known as MEOWMEOWGATO.
 - Others -->  we're a therian, fictionkin, & robotkin
 
 DNI : invalid sexualities (such as zoophiles, pedophiles, ect..)
+
+last updated on: 11/25/26
